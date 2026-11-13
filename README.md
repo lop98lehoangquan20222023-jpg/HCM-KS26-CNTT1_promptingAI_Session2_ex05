@@ -1,0 +1,1 @@
+# HCM-KS26-CNTT1_promptingAI_Session2_ex05
